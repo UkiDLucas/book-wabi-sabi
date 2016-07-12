@@ -22,13 +22,15 @@ This book will be about application of this beautiful, yet powerful world view t
 
 #### Positive outlook on things
 
-On the surface, and unfortunately very commonplace, Wabi Sabi, when explained thru the lenses of Buddhism, appears nihilistic: "nothing is permanent, nothing is finished, nothing is perfect". That amount of nothingness, a really heavy stuff, is enough to put off anyone who does not understand the meaning of these words. Nothing could be further from the truth of the real meaning.
+On the surface and unfortunately very commonplace, Wabi Sabi, when explained thru the lenses of Buddhism, appears nihilistic: "nothing is permanent, nothing is finished, nothing is perfect". That amount of nothingness, a really heavy stuff, is enough to put off anyone who does not understand the meaning of these words. Nothing could be further from the truth of the real meaning.
 
-The way I rather think about Wabi Sabi is by appreciating a full of life flower on the spring morning, perfect as it is for just few days. We may see this flower in another life, next year, in the same place and so on for ten thousands lifetimes. It is transitional and permanent at the same time. It is serving it's purpose to the fullest. No need to get sad, depressed and suicidal. It is time to grow, bloom and serve our purpose and be forever a part of the chain of life. 
+The way I rather think about Wabi Sabi is by appreciating a full of life flower on the spring morning, perfect as it is for just few days. We may see this flower in another life, next year, in the same place and so on for ten thousands lifetimes. It is transitional and permanent at the same time. It is serving it's purpose to the fullest. No need to get sad, depressed or suicidal. It is time to grow, bloom and serve our purpose and be forever a part of the chain of life. 
 
-The other way I often think about Wabi Sabi is by visualizing Japanese wood-working tools. Japanese have fondness for some marvelous, sharp as katana sword tools. Their chisels and wood plains look as simple as tools can get, yet they are a true pieces of art and technology at the same time. They have soft iron cores and hard cutting steel blades, they have shapes that are just perfect for the job. Japanese master builders are able to make whole buildings and furniture without use of nails or glue. Japanese spend a lot of their time to keep their tools razor sharp which will be another lesson in this book. These tools can be very old and weathered, but they are as sharp and useful as they did when grandfathers were using it.
+The other way I often think about Wabi Sabi is by visualizing Japanese wood-working tools. 
 
-I like to surround myself by nature, these old tools and antique furniture, not because they are fancy, but because they are simple and have quality lacking in modern plastic disposables.
+Japanese have fondness for some marvelous, sharp as katana sword tools. Their chisels and wood plains look as simple as tools can get, yet they are a true pieces of art and technology at the same time. They have soft iron cores and hard cutting steel blades, they have shapes that are just perfect for the job. Japanese master builders are able to make furniture and whole buildings without use of nails or glue. Japanese spend a lot of their time to keep their tools razor sharp which will be another lesson in this book. These tools can be very old and weathered, but they are as sharp and useful as they did when grandfathers were using it.
+
+I like to surround myself by nature, old useful things and antique furniture, not because they are fancy, but because they are simple and have quality lacking in modern plastic disposables.
 
 #### Perfect social disease
 
@@ -41,7 +43,13 @@ In fact the saying "Do not let perfect stand in the way of good" is one of the m
 
 The concept of imperfection is at the core of meaning of Wabi Sabi. Japanese, over many centuries learned to appreciate rustic and weathered ideals. The tea bowl with irregularity created during the manufacturing process such as finger imprint, out of round shape, or chip could provide more value to the connoisseur than a perfect specimen. We should never be afraid to appreciate beauty of good enough. 
 
+#### Sharpening your tools
 
+Japanese master woodworkers have traditionally maintained a toolset of some incredible tools. To uninitiated, these tools at the garage sale would appear as nothing more than few bucks worth of stuff. The experts know that there is hardly anything in the world that could compare to Japanese composite blades. These blades consisted of soft internal cores that allowed bending and hard edges that kept incredible edges. 
+
+At the times when europeans sharpened their tools and and swords with at best 300 grit rotating stones, Japanese spent hours polishing their blades with 6000 grid perfectly flat whetstones.
+
+The effect is that in Europe it was much easier to nail two boards together with a rusty nail. in Japan a house would be assembled like a puzzle from the pieces that fitted together perfectly. the buildings were earthquake proof and could be disassembled 1000 years later for renovation.
 
 
 
