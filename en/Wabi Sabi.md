@@ -2,19 +2,23 @@
 
 #### Introduction
 
-There are as many ways to package a message as they are individuals willing to communicate. Everyone draws on their own experiences. Some people prefer raw statistical facts, others follow religions, some other hop on the latest (Paleo, Gluten Free, Minimalistic) trend. I chose to wrap my message in the thousand year old culture of art, refinement and common sense, a paradigm called Wabi Sabi in Japanese culture. As you read this book, hopefully, you will experience a paradigm shift and notice that our society, including that of modern Japan, lost ourselves in recent times and that there is an easy way back. Why do we need a simplistic pattern? Our brains work well because they are finding simplified patterns in otherwise too complex to comprehend world. I could write down a thousand dos and do nots, but the list would be hard to remember and follow. There are other simple to remember one-liners that people follow like "Do not do to others what you would no like them to do to you.", but unfortunately that applies to people and does not help us interact with the material world around us. 
+There are as many ways to convey a message as they are individuals willing to communicate. Everyone draws on their own experiences. Some people prefer raw statistical facts, others follow religions, some other hop on the latest (Paleo, Gluten Free, No Sugar) trend. 
 
-I have decided to write down a set of life lessons I have learned by drawing on my experience of living in Japan for three years, studying anthropology of Japan and of East Asia, creating software products and managing lots people for couple of decades, being broke and making good money at the same time. Running on the corporate treadmill and trying to make sense of it.
+I chose to wrap my message in the thousand year old culture of art, refinement and common sense, a paradigm called "Wabi Sabi" in Japanese culture. As you read this book, hopefully, you will experience a paradigm shift and notice that our society, including that of modern Japan, lost ourselves in recent times. Do not worry, there is an easy way back. 
+
+Why do we need a pattern to follow? Our brains work well because they are finding simplified patterns in otherwise too complex to comprehend world. I could write down a list of thousand "dos and do nots", but the list would be hard to remember. There are other simple to remember one-liners that people follow like "Do not do to others what you would no like them to do to you.", but unfortunately that applies to people and does not help us interact with the material world around us. 
+
+I have decided to write down a set of life lessons I have learned by drawing on my experience of living for three years in Japan, studying anthropology of East Asia, creating software products, experience of managing lots people for couple of decades, pitfalls of being broke and making good money at the same time. Madness of running on the corporate treadmill and trying to make sense of it.
 
 #### Wabi Sabi
 
-Japanese of yester-year had a beautiful world view that touches the very fabric of one's soul, few people can name it, but everyone can easily understands it. When you look at old and weathered, but well-built cabin in the mountains on the flowery spring morning, colorful autumn, or a quiet, snowed-in, winter day. The cabin, the mountains, the nearby stream and forest are all both transient, never to be seen the same way again and comforting at the same time in the feel of permanence. The cabin, build many years ago, is far from plastic factory perfect, yet it fits in and it is inviting.
+Japanese of yester-year had a beautiful world view that touches the very fabric of one's soul, few people can name it, but everyone can easily understands it when you look at old and weathered, but well-built cabin in the mountains on the flowery spring morning, colorful autumn, or a quiet, snowed-in, winter day. The scenery you see are all both transient, never to be seen the same way again and comforting at the same time in the feel of permanence. The cabin, build years ago, is far from plastic factory perfect, yet it fits in and it is inviting.
 
 Today, when you study Japanese culture and research Wabi Sabi you find references to Zen gardens, atchitecture, tea bowls and ikebana flower arrangements. The Japanese appreciation of transient nature of things extends far beyond the sense of art and the garden design. This world view, when truly understood, extends to everything we do in our lives. It leads to healthy internal balance, unity with nature, empathy, mastery of our actions, thoughtfulness and shelters us from toxic and destructive perfection.
 
 When translated, the imperfect meaning of the Wabi is the elation one has when experiencing the essence of nature. Word Sabi it the joy of proven minimalism and simplicity of things. Together they could be interpreted as "natural simplicity", but I prefer to leave the words untranslated and understand them in the form of images.
 
-This book will be about application of this beautiful, yet powerful world view to every day life, hopefully it will help us to save ourselves and maybe even the planet.
+This book will be about application of this beautiful, yet powerful world view to every day life, hopefully it will help us to improve our lives and maybe even save the planet.
 
 #### Positive outlook on things
 
