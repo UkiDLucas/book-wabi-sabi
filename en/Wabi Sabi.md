@@ -63,6 +63,30 @@ A few years ago I hired a freelance graphic artist who had an old computer which
 
 I have been consistently buying top of the line computers in my career as software developer because you never have time for your computer just spinning wheels. These days, pretty much any new computer if good enough for most of the jobs, except maybe video post processing and related tasks.
 
+#### Being Shrewd with your time
+
+Many people are being shrewd with their money, they really count every cent. Money, however, is a renewable resource, you can be broke at 30 and make a lot by 45, or 55, or 65, time on the other hand is not a renewable resource, once it is gone, it is gone for good. 
+
+I encourage people to become very shrewd with time. Being a consultant I had to keep track of what I am doing to bill the clients. Clients want to be billed only for value being provided to them and they are willing to pay only for the minimum time needed to accomplish the task.
+
+You should use the idea of keeping track of your tasks in personal life as well. It is very easy to waste time, or spend too much time one one task and not the other. I lover to read and reading benefits me, but I have to force myself to take breaks from reading and do some writing, be it book writing, or software. Watching educational movies and listening to podcasts is the same, they are good for you, but if that is the only thing you do you may not make any real progress.
+
+
+
+#### Steps to success
+
+We all start with knowing nothing, it is important to realize it, so people who start do not get discouraged. One of the books I have read and that made huge impression on me is "Microbe Hunters", stories of people who knew nothing about microbiology and yet they went on to discover great things. It is important to recognize at this stage that you do not have to have knowledge, or education or particular talent to start. 
+
+**At this stage you may have no idea what to do in life, but you should strive to pick best you can based on the following criteria: future job will allow you to distinguish yourself when getting great, job is useful, people are nice.**
+
+The next stage is hard work, I call it apprenticeship phase. On this stage you have to show strong will to serve others in order to learn your craft well. The work may not be creative and you may not have autonomy to make decisions, you make sacrifices to learn the craft. You will make many mistakes in this stage, but these mistakes will become valuable, even necessary.
+
+ The next stage is to happen upon a lucky break, very often in science this happens by mistake. You have to be trained enough to recognize such lucky break and latch to it.
+
+The lucky break is followed by more hard work. At this stage you are going creative work and you have autonomy to make decision.
+
+The culmination it that you develop a passion out of years of mastering the craft to a point that you developed a unique skills and discoveries of your own. At this point you gain following and have your own apprentices.
+
 
 
 
