@@ -45,11 +45,23 @@ The concept of imperfection is at the core of meaning of Wabi Sabi. Japanese, ov
 
 #### Sharpening your tools
 
-Japanese master woodworkers have traditionally maintained a toolset of some incredible tools. To uninitiated, these tools at the garage sale would appear as nothing more than few bucks worth of stuff. The experts know that there is hardly anything in the world that could compare to Japanese composite blades. These blades consisted of soft internal cores that allowed bending and hard edges that kept incredible edges. 
+Japanese master woodworkers have traditionally maintained a set of some incredible tools. To uninitiated, at the garage sale, these tools would appear as nothing more than few bucks worth of stuff. The experts know that there is hardly anything in the world that could compare to Japanese composite blades. These blades consisted of soft internal cores that allowed bending and of hard outside that kept incredible edges. The shape of the blade was ever so slightly concave to allow for leading edge to be always sharpest when polishing on perfectly flat stone.
 
-At the times when europeans sharpened their tools and and swords with at best 300 grit rotating stones, Japanese spent hours polishing their blades with 6000 grid perfectly flat whetstones.
+At the times when europeans sharpened their tools (and swords) with at best 300 grit stones (often rotating), Japanese spent hours polishing their blades with 6,000 grid flat whetstones.
 
-The effect is that in Europe it was much easier to nail two boards together with a rusty nail. in Japan a house would be assembled like a puzzle from the pieces that fitted together perfectly. the buildings were earthquake proof and could be disassembled 1000 years later for renovation.
+The effect is that in Europe it was much easier to nail two rough hewn boards together with a rusty nail. 
+
+In Japan a house would be assembled like a puzzle from the pieces that fitted together perfectly. The buildings were earthquake proof and could be disassembled 1,000 years later for renovation.
+
+The lesson of keeping your tools sharp is one of the most important one in life. You do not have to own all tools in the world, but the select few with which you perform your craft have to be sharp.
+
+The first tool that everyone uses is our own brain. There is simply not enough time in a day, even if you have highly intellectual job, to waste it on video games, alcohol drinking, sitcoms, watching sports, romantic novels whatever is your particular poison.
+
+These days with access to Internet us can obtain books, articles, podcasts, video tutorials to develop many mentally challenging hobbies that will constantly sharpen your brain. There is much talk that external hobbies are necessary to be creative your your regular job.
+
+A few years ago I hired a freelance graphic artist who had an old computer which was so slow that some of the Photoshop transformations (filters) were taking 30 minutes or longer. If you decide to be graphic artist and work with Photoshop, you have to obtain a computer fast enough to do your job. 
+
+I have been consistently buying top of the line computers in my career as software developer because you never have time for your computer just spinning wheels. These days, pretty much any new computer if good enough for most of the jobs, except maybe video post processing and related tasks.
 
 
 
