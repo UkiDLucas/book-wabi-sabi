@@ -75,7 +75,9 @@ You should use the idea of keeping track of your tasks in personal life as well.
 
 #### Steps to success
 
-In this section I will describe stages a person should go in order to achieve success. Many people skip important milestones and get discouraged, or worse. There are many different ways to success and some shortcuts (i.e. winning lottery, having an influential family, best schools, or lucky product early on), but mostly the rest of us have to earn their place in life. 
+In this section I will describe stages a person should go in order to achieve success. This model has been used for centuries by Japanese craftsmen, but it applies superbly to modern academic, startup and corporate world. 
+
+Many people skip important milestones and get discouraged, or worse. There are many different ways to success and some shortcuts (i.e. winning lottery, having an influential family, best schools, or lucky product early on), but mostly the rest of us have to earn their place in life the hard way. 
 
 ##### Starting from zero
 
@@ -89,11 +91,19 @@ At beginning you may have no idea what to do in life, but you should strive to m
 
 These three points are important, if people are not willing to pay for what you do (e.g. hiking, traveling, writing) than it is a hobby and should be treated as one. You can make a lot of money as lawyer, or a banker, but it might not be aligned with your value system as most money is made in defending interests of worse cases. Finally, working with bunch of blood thirst vampires may not be the healthiest career choice for young, warm-blooded, person.
 
-The next stage is hard work, I call it apprenticeship phase. On this stage you have to show strong will to serve others in order to learn your craft well. The work may not be creative and you may not have autonomy to make decisions, you make sacrifices to learn the craft. You will make many mistakes in this stage, but these mistakes will become valuable, even necessary.
+##### Apprenticeship, getting experience
+
+The next stage is hard work, I call it apprenticeship phase. On this stage you have to show strong will to serve others in order to learn your new craft well. The work may not be creative and you may not have autonomy to make decisions, you make sacrifices to learn the craft. You will make many mistakes in this stage, but these mistakes will become valuable, even necessary.
+
+##### Getting a luck break
 
  The next stage is to happen upon a lucky break, very often in science this happens by mistake. You have to be trained enough to recognize such lucky break and latch to it.
 
+##### Pushing your passion
+
 The lucky break is followed by more hard work. At this stage you are going creative work and you have autonomy to make decision.
+
+##### Mastership
 
 The culmination it that you develop a passion out of years of mastering the craft to a point that you developed a unique skills and discoveries of your own. At this point you gain following and have your own apprentices.
 
