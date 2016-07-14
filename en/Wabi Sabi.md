@@ -99,13 +99,13 @@ There may be a single apprenticeship for a craft you are learning, or several su
 
 You will make many mistakes in this stage, but these mistakes will become very valuable, even necessary. Also, it is better to make these mistakes as apprentice, then later when spending your own, or your investors' money. In startup community, it is considered normal to work insanely long hours and fail few times before getting a lucky break.
 
-##### Getting a luck break
+##### Getting a lucky break
 
- The next stage is to happen upon a lucky break, very often in science this happens by mistake. You have to be trained enough to recognize such lucky break and latch to it.
+It you apply yourself, you may happen upon a lucky break, very often in science this happens by mistake, for other people it may be recognition of your value and the right conversation at the right time. You have to be skilled enough to recognize such lucky break, to know it matches your goals. You have to have presence of mind and be brave enough to latch to it for dear life.
 
 ##### Pursue your passion
 
-The lucky break is followed by more hard work. At this stage you are going creative work and you have autonomy to make decision.
+The lucky break should reflect you passions and it is followed by even more hard work. At this stage you are doing creative work and you have autonomy to make decisions.
 
 ##### Mastership
 
