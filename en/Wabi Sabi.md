@@ -93,13 +93,17 @@ These three points are important, if people are not willing to pay for what you 
 
 ##### Apprenticeship, getting experience
 
-The next stage is hard work, I call it apprenticeship phase. On this stage you have to show strong will to serve others in order to learn your new craft well. The work may not be creative and you may not have autonomy to make decisions, you make sacrifices to learn the craft. You will make many mistakes in this stage, but these mistakes will become valuable, even necessary.
+Apprenticeship is the stage where you work very, very hard for others to succeed. It sounds terrible, but it is true. You need to serve others to get chance to learn from them. This could be an entry level job, or graduate research. Your work may not be necessary creative and you may not have autonomy to make your own decisions. There is a saying in military: "You have to learn how to follow before you can lead." At this stage it is essential to develop a network of mentors to guide you on.
+
+There may be a single apprenticeship for a craft you are learning, or several such as education and time spent in large consulting company where you learn by servicing several clients. It can be also working in several technology startups in the row. 
+
+You will make many mistakes in this stage, but these mistakes will become very valuable, even necessary. Also, it is better to make these mistakes as apprentice, then later when spending your own, or your investors' money. In startup community, it is considered normal to work insanely long hours and fail few times before getting a lucky break.
 
 ##### Getting a luck break
 
  The next stage is to happen upon a lucky break, very often in science this happens by mistake. You have to be trained enough to recognize such lucky break and latch to it.
 
-##### Pushing your passion
+##### Pursue your passion
 
 The lucky break is followed by more hard work. At this stage you are going creative work and you have autonomy to make decision.
 
