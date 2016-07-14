@@ -99,6 +99,10 @@ There may be a single apprenticeship for a craft you are learning, or several su
 
 You will make many mistakes in this stage, but these mistakes will become very valuable, even necessary. Also, it is better to make these mistakes as apprentice, then later when spending your own, or your investors' money. In startup community, it is considered normal to work insanely long hours and fail few times before getting a lucky break.
 
+##### Single skillet vs. composite experience
+
+Some careers require a single skill set that you are required to master, for example Android developer, others such as Software Manager require a composite of skills that should include programming, architecture and management. You have to clearly recognize what you are aiming at because having multiple experiences for a job where single strong skill set is required may be detrimental. 
+
 ##### Getting a lucky break
 
 It you apply yourself, you may happen upon a lucky break, very often in science this happens by mistake, for other people it may be recognition of your value and the right conversation at the right time. You have to be skilled enough to recognize such lucky break, to know it matches your goals. You have to have presence of mind and be brave enough to latch to it for dear life.
@@ -109,7 +113,7 @@ The lucky break should reflect you passions and it is followed by even more hard
 
 ##### Mastership
 
-The culmination it that you develop a passion out of years of mastering the craft to a point that you developed a unique skills and discoveries of your own. At this point you gain following and have your own apprentices.
+The culmination is that you develop a passion out of years of mastering the craft to a point that you developed a unique skills and discoveries of your own. At this point you gain following and have your own apprentices.
 
 
 
