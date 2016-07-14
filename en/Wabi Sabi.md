@@ -75,9 +75,19 @@ You should use the idea of keeping track of your tasks in personal life as well.
 
 #### Steps to success
 
-We all start with knowing nothing, it is important to realize it, so people who start do not get discouraged. One of the books I have read and that made huge impression on me is "Microbe Hunters", stories of people who knew nothing about microbiology and yet they went on to discover great things. It is important to recognize at this stage that you do not have to have knowledge, or education or particular talent to start. 
+In this section I will describe stages a person should go in order to achieve success. Many people skip important milestones and get discouraged, or worse. There are many different ways to success and some shortcuts (i.e. winning lottery, having an influential family, best schools, or lucky product early on), but mostly the rest of us have to earn their place in life. 
 
-**At this stage you may have no idea what to do in life, but you should strive to pick best you can based on the following criteria: future job will allow you to distinguish yourself when getting great, job is useful, people are nice.**
+##### Starting from zero
+
+We all start with knowing nothing, it is important to realize it, so people who start do not get discouraged. A book that made huge impression on me was "Microbe Hunters", stories of people who knew nothing about microbiology and yet they went on to discover great things. It is important to recognize at this stage that you do not have to have knowledge, or education or particular talent to start. 
+
+At beginning you may have no idea what to do in life, but you should strive to make you choices best you can based on the following criteria: 
+
+- people will pay for what you do if you apply yourself
+- the career you are choosing is aligning with your values
+- people you will work with are nice
+
+These three points are important, if people are not willing to pay for what you do (e.g. hiking, traveling, writing) than it is a hobby and should be treated as one. You can make a lot of money as lawyer, or a banker, but it might not be aligned with your value system as most money is made in defending interests of worse cases. Finally, working with bunch of blood thirst vampires may not be the healthiest career choice for young, warm-blooded, person.
 
 The next stage is hard work, I call it apprenticeship phase. On this stage you have to show strong will to serve others in order to learn your craft well. The work may not be creative and you may not have autonomy to make decisions, you make sacrifices to learn the craft. You will make many mistakes in this stage, but these mistakes will become valuable, even necessary.
 
