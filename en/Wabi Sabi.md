@@ -107,9 +107,11 @@ Your career goals may dictate what projects to focus on and which to give a pass
 
 #### Apprenticeship: getting experience
 
-Apprenticeship is the stage where you work very, very hard for other people to succeed. It sounds terrible, but it is true. You need to serve others to get chance to learn from them. People do not give away their hard earned skills easily, you have to pay for them one way or the other. This could be an entry level job, or graduate research. Your work may not be necessary creative and you may not have autonomy to make your own decisions. There is a saying in military: "You have to learn how to follow before you can lead." At this stage it is essential to develop a network of mentors to guide you on.
+Apprenticeship is the stage where you work very, very hard for other people to succeed. It sounds terrible, but it is true. You need to serve others to get chance to learn from them. People do not give away their hard-earned skills easily, you have to pay for them one way or the other. 
 
-There may be a single apprenticeship for a craft you are learning, or several such as education and time spent in large consulting company where you learn by servicing several clients. It can be also working in several technology startups in the row. 
+To gain the experience you could be doing an entry level job, or post/graduate research. Your work may not be necessary creative and you may not have autonomy to make your own decisions. There is a saying in military: "You have to learn how to follow before you can lead." At this stage it is essential to develop a network of mentors to guide you on.
+
+There may be a single apprenticeship path for a craft you are learning, or several combined experiences such as education and time spent in large consulting company where you learn by servicing several clients. It can be also working in several technology startups in the row. 
 
 ##### Trying and Pivoting
 
