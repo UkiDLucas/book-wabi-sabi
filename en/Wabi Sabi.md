@@ -73,23 +73,29 @@ You should use the idea of keeping track of your tasks in personal life as well.
 
 
 
-#### Steps to success
+### Steps to success
 
 In this section I will describe stages a person should go in order to achieve success. This model has been used for centuries by Japanese craftsmen, but it applies superbly to modern academic, startup and corporate world. 
 
-Many people skip important milestones and get discouraged, or worse. There are many different ways to success and some shortcuts (i.e. winning lottery, having an influential family, best schools, or lucky product early on), but mostly the rest of us have to earn their place in life the hard way. 
+Many people try to skip some of these important developmental milestones and subsequently fail, get discouraged, or worse. There are many different ways to success and some shortcuts, i.e. winning lottery, starting early in the childhood, having an influential family and friends, attending best schools, or creating good product early on, but most of us have to earn their place in life the hard way. 
 
-##### Starting from zero
+#### Starting from zero
 
-We all start with knowing nothing, it is important to realize it, so people who start do not get discouraged. A book that made huge impression on me was "Microbe Hunters", stories of people who knew nothing about microbiology and yet they went on to discover great things. It is important to recognize at this stage that you do not have to have knowledge, or education or particular talent to start. 
+We all start with knowing nothing, it is important to realize this so you do not get discouraged. There are no geniuses, only people who have worked very hard and focused. A book that made huge impression on me was "Microbe Hunters", stories of people who knew nothing about microbiology and yet they went on to discover great things. It is important to recognize that you do not have to have knowledge, or proper education, or particular talent to start. 
 
-At beginning you may have no idea what to do in life, but you should strive to make you choices best you can based on the following criteria: 
+##### Choosing the direction
 
-- people will pay for what you do if you apply yourself
-- the career you are choosing is aligning with your values
+At beginning you may have no idea what to do in life, but you should strive to make best career choices you can based on the following criteria: 
+
+- people will recognize you and pay for what you do if you apply yourself
+- the career you are choosing is aligning with your core values
 - people you will work with are nice
 
-These three points are important, if people are not willing to pay for what you do (e.g. hiking, traveling, writing) than it is a hobby and should be treated as one. You can make a lot of money as lawyer, or a banker, but it might not be aligned with your value system as most money is made in defending interests of worse cases. Finally, working with bunch of blood thirst vampires may not be the healthiest career choice for young, warm-blooded, person.
+These three points are important, if people are not willing to pay for what you do (e.g. hiking, traveling, writing) than it is a hobby and should be treated as one. People should have hobbies and they are very important. 
+
+On the flip side, you can make a lot of money as lawyer, or a banker, but it might not be aligned with your value system as most money is made in defending interests of worse cases. 
+
+Finally, working with bunch of blood-thirsty vampires may not be the healthiest career choice for young, warm-blooded, person.
 
 ##### Single skillet vs. composite experience
 
@@ -121,7 +127,7 @@ It you apply yourself, you may happen upon a lucky break, very often in science 
 
 The lucky break should reflect you passions and it is followed by even more hard work. At this stage you are doing creative work and you have autonomy to make decisions.
 
-##### Mastership
+##### Achieving Mastership
 
 The culmination is that you develop a passion out of years of mastering the craft to a point that you developed a unique skills and discoveries of your own. At this point you gain following and have your own apprentices.
 
