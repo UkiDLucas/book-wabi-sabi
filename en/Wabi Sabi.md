@@ -125,7 +125,7 @@ It is absolutely essential that your career development is composed of a lot of 
 
 ##### Achieving a cutting-edge in your field
 
-At certain point in your career as a student you will get to the point that you know how to do your tasks very well, you have read all the books written and you can guess the next sentence of your teacher, that is a sign that you might be getting close to the cutting edge of your field. This is not mastery yet, but at this point you can start developing opinions of that the next step in your career should be.x`
+At certain point in your career as a student you will get to the point that you know how to do your tasks very well, you have read all the books and you can guess the next sentence of your teacher, that is a sign that you might be getting close to the cutting edge of your field. This is not mastery yet, but at this point you can start developing opinions of that the next step in your career should be.
 
 ##### Getting a lucky break
 
