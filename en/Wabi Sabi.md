@@ -91,17 +91,27 @@ At beginning you may have no idea what to do in life, but you should strive to m
 
 These three points are important, if people are not willing to pay for what you do (e.g. hiking, traveling, writing) than it is a hobby and should be treated as one. You can make a lot of money as lawyer, or a banker, but it might not be aligned with your value system as most money is made in defending interests of worse cases. Finally, working with bunch of blood thirst vampires may not be the healthiest career choice for young, warm-blooded, person.
 
+##### Single skillet vs. composite experience
+
+Some careers require a single skill set that you are required to master, for example Android developer, others such as Software Manager require a composite of skills that should include programming, architecture and management. You have to clearly recognize what you are aiming at because having multiple experiences for a job where single strong skill set is required may be detrimental. 
+
 ##### Apprenticeship, getting experience
 
 Apprenticeship is the stage where you work very, very hard for others to succeed. It sounds terrible, but it is true. You need to serve others to get chance to learn from them. This could be an entry level job, or graduate research. Your work may not be necessary creative and you may not have autonomy to make your own decisions. There is a saying in military: "You have to learn how to follow before you can lead." At this stage it is essential to develop a network of mentors to guide you on.
 
 There may be a single apprenticeship for a craft you are learning, or several such as education and time spent in large consulting company where you learn by servicing several clients. It can be also working in several technology startups in the row. 
 
+##### Trying and Pivoting
+
 You will make many mistakes in this stage, but these mistakes will become very valuable, even necessary. Also, it is better to make these mistakes as apprentice, then later when spending your own, or your investors' money. In startup community, it is considered normal to work insanely long hours and fail few times before getting a lucky break.
 
-##### Single skillet vs. composite experience
+In startup community making mistakes and adjusting for them is called pivoting. Most people imagine this as sharp turns, total direction changes. I prefer to think about my course as if it was a large freighter ship, unable to make sharp turns. Each pivot is the idea tired and failed, but each one moves you forward adding to you experience capital.
 
-Some careers require a single skill set that you are required to master, for example Android developer, others such as Software Manager require a composite of skills that should include programming, architecture and management. You have to clearly recognize what you are aiming at because having multiple experiences for a job where single strong skill set is required may be detrimental. 
+It is absolutely essential that your career development is composed of a lot of attempts at various things related to your field. Many will fail, but without trying you will never get a breakthrough.
+
+##### Achieving a cutting-edge in your field
+
+At certain point in your career as a student you will get to the point that you know how to do your tasks very well, you have read all the books written and you can guess the next sentence of your teacher, that is a sign that you might be getting close to the cutting edge of your field. This is not mastery yet, but at this point you can start developing opinions of that the next step in your career should be.x`
 
 ##### Getting a lucky break
 
