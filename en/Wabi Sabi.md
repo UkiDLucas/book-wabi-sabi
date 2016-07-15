@@ -133,15 +133,23 @@ At certain point in your career as a student you will get to the point that you 
 
 #### Getting a lucky break
 
-It you apply yourself, you may happen upon a lucky break, very often in science this happens by mistake, for other people it may be recognition of your value and the right conversation at the right time. You have to be skilled enough to recognize such lucky break, to know it matches your goals. You have to have presence of mind and be brave enough to latch to it for dear life.
+It you apply yourself, you may happen upon a lucky break, very often in science this happens by mistake, for other people it may be recognition for value you provide and the right conversation at the right time. You have to be skilled enough to recognize such lucky break, to know it matches your goals. You have to have presence of mind and be brave enough to latch to it for dear life.
 
 ##### Pursue your passion
 
-The lucky break should reflect you passions and it is followed by even more hard work. At this stage you are doing creative work and you have autonomy to make decisions.
+The lucky break is followed by even more hard work. At this stage you may be doing creative work and you may have autonomy to make decisions.
 
-##### Achieving Mastership
+Since you have already achieved a cutting edge level in your field, you may be quite aware what are your interests, goals and passions. 
 
-The culmination is that you develop a passion out of years of mastering the craft to a point that you developed a unique skills and discoveries of your own. At this point you gain following and have your own apprentices.
+I would suggest to withhold the talk about "purpose in life", life goals and passion until you have achieved this level in order to keep your mind open to opportunities that are not visible early in life.
+
+There is a good chance that from this moment on you can combine your work, your passions and your hobbies into a single "lifestyle".
+
+#### Achieving Mastership
+
+The culmination of your efforts should be that you have developed a career for which you have a passion which arose, often surprisingly from years of mastering the skill set to a point that you became a master and made some discoveries and path of your own. 
+
+At this point you gain following and have your own apprentices, the cycle repeats and culture is moved forward.
 
 
 
