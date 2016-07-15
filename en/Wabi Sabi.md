@@ -113,11 +113,13 @@ To gain the experience you could be doing an entry level job, or post/graduate r
 
 There may be a single apprenticeship path for a craft you are learning, or several combined experiences such as education and time spent in large consulting company where you learn by servicing several clients. It can be also working in several technology startups in the row. 
 
-##### Trying and Pivoting
+##### Trying, failing and Pivoting
 
-You will make many mistakes in this stage, but these mistakes will become very valuable, even necessary. Also, it is better to make these mistakes as apprentice, then later when spending your own, or your investors' money. In startup community, it is considered normal to work insanely long hours and fail few times before getting a lucky break.
+You will make many mistakes along the way, but these mistakes will become very valuable, even necessary to succeed. Also, it is better to make these mistakes as apprentice, then later when you are spending your own, or your investors' money. In startup community, it is considered normal and expected to work insanely long hours and fail few times before getting a lucky break.
 
-In startup community making mistakes and adjusting for them is called pivoting. Most people imagine this as sharp turns, total direction changes. I prefer to think about my course as if it was a large freighter ship, unable to make sharp turns. Each pivot is the idea tired and failed, but each one moves you forward adding to you experience capital.
+In startup community making mistakes and adjusting for them is called "pivoting". Most people imagine this as sharp turns, a total direction changes. I prefer to think about my course as if it was a large freighter ship, unable to make sharp turns. Each pivot is the idea that failed, but each one, after adjustment, moves you forward adding to your experience.  
+
+That experience is your capital which you will trade in for better, more interesting and well paid jobs.
 
 It is absolutely essential that your career development is composed of a lot of attempts at various things related to your field. Many will fail, but without trying you will never get a breakthrough.
 
