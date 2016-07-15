@@ -123,11 +123,15 @@ That experience is your capital which you will trade in for better, more interes
 
 It is absolutely essential that your career development is composed of a lot of attempts at various things related to your field. Many will fail, but without trying you will never get a breakthrough.
 
+##### Exercising your brain
+
+There are plenty of people who do the same thing every day, yet they did not become masters in their field. To become significantly better then the rest you have to push yourself to the unknown territory all the time. Doing same-old, what is comfortable is not growing. Unfortunately, the old military saying "No pain, no gain" is absolutely true, you have to push yourself beyond your comfort zone and keep doing it daily. There is no substitute, or shortcut here.
+
 ##### Achieving a cutting-edge in your field
 
 At certain point in your career as a student you will get to the point that you know how to do your tasks very well, you have read all the books and you can guess the next sentence of your teacher, that is a sign that you might be getting close to the cutting edge of your field. This is not mastery yet, but at this point you can start developing opinions of that the next step in your career should be.
 
-##### Getting a lucky break
+#### Getting a lucky break
 
 It you apply yourself, you may happen upon a lucky break, very often in science this happens by mistake, for other people it may be recognition of your value and the right conversation at the right time. You have to be skilled enough to recognize such lucky break, to know it matches your goals. You have to have presence of mind and be brave enough to latch to it for dear life.
 
