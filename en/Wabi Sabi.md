@@ -99,7 +99,7 @@ I would recommend  "Microbe Hunters" book to every young person, stories of peop
 
 ##### Choosing the direction
 
-At the beginning you may have no idea what to do in life, however you should strive to make best choices you can based on the following criteria: 
+At the beginning you may have no idea what to do in life, however you should strive to make best choices anyway. You can consider the following criteria: 
 
 - people will find value in what you are doing
 - the career you are choosing is aligned with your core values
@@ -111,13 +111,13 @@ On the flip side, you can make a lot of money as lawyer, or a banker, but it mig
 
 Finally, working with bunch of blood-thirsty vampires may not be the healthiest career choice for young, warm-blooded, person.
 
-##### Single skillet vs. composite experience
+##### Staying focused
 
-Some careers require a single skill set that you are required to master, for example to apply for position of Android app developer I have to have a mastery over few, very well defined skills, any side-tracking from this path may actually hurt my prospects as employers will see me s not focused, or dedicated to my craft.
+Some careers require a single skill set that you are required to master, for example to apply for position of Android app developer I have to have a mastery over few, very well defined skills, any side-tracking from this path may actually hurt my prospects as employers will see me as not focused, or not dedicated to my craft.
 
-Other, careers such as Consulting Software Manager require a composite of skills that should include programming, architecture, management sometimes even things like automotive engineering, depending on your industry. 
+Careers such as Consulting Software Manager require a composite of skills that should include programming, architecture, management, sometimes even things like automotive engineering, depending on the industry you work in. 
 
-Your career goals may dictate what projects to focus on and which to give a pass.
+Your career goals will dictate what projects to focus on and which to give a pass.
 
 #### Apprenticeship: getting experience
 
