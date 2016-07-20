@@ -93,7 +93,9 @@ The model provided here has been used for centuries by Japanese craftsmen master
 
 #### Starting from zero
 
-We all start with knowing nothing, it is important to realize this so you do not get discouraged. There are no geniuses, only people who have worked very hard and focused. A book that made huge impression on me was "Microbe Hunters", stories of people who knew nothing about microbiology and yet they went on to discover great things. It is important to recognize that you do not have to have knowledge, or proper education, or particular talent to start. 
+We all start with knowing nothing. There are no geniuses, only people who, had good teachers, have worked very hard and are focused on their goals. It is important to realize this so you do not get discouraged.
+
+I would recommend  "Microbe Hunters" book to every young person, stories of people who knew nothing about microbiology and yet they went on to discover great things. It is important to recognize that you do not have to have knowledge, or proper education, or particular talent to start. 
 
 ##### Choosing the direction
 
