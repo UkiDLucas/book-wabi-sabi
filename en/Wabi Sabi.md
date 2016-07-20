@@ -111,21 +111,23 @@ On the flip side, you can make a lot of money as lawyer, or a banker, but it mig
 
 Finally, working with bunch of blood-thirsty vampires may not be the healthiest career choice for young, warm-blooded, person.
 
+#### Apprenticeship: getting experience
+
+Apprenticeship is the stage where you work very, very hard for other people to succeed. 
+
+It sounds terrible, but it is true. You need to serve others to get chance to learn from them. People do not give away their hard-earned skills easily, you have to pay for them one way or the other. 
+
+To gain the experience you could be doing an entry level job, or post/graduate research. Your work may not be necessary creative and you may not have autonomy to make your own decisions. There is a saying in military: "You have to learn how to follow before you can lead." At this stage it is essential to develop a network of mentors to guide you on.
+
+There may be a single apprenticeship path for a craft you are learning, or several combined experiences such as education and time spent in large consulting company where you learn by servicing several clients. It can be also working in several technology startups in the row. 
+
 ##### Staying focused
 
 Some careers require a single skill set that you are required to master, for example to apply for position of Android app developer I have to have a mastery over few, very well defined skills, any side-tracking from this path may actually hurt my prospects as employers will see me as not focused, or not dedicated to my craft.
 
 Careers such as Consulting Software Manager require a composite of skills that should include programming, architecture, management, sometimes even things like automotive engineering, depending on the industry you work in. 
 
-Your career goals will dictate what projects to focus on and which to give a pass.
-
-#### Apprenticeship: getting experience
-
-Apprenticeship is the stage where you work very, very hard for other people to succeed. It sounds terrible, but it is true. You need to serve others to get chance to learn from them. People do not give away their hard-earned skills easily, you have to pay for them one way or the other. 
-
-To gain the experience you could be doing an entry level job, or post/graduate research. Your work may not be necessary creative and you may not have autonomy to make your own decisions. There is a saying in military: "You have to learn how to follow before you can lead." At this stage it is essential to develop a network of mentors to guide you on.
-
-There may be a single apprenticeship path for a craft you are learning, or several combined experiences such as education and time spent in large consulting company where you learn by servicing several clients. It can be also working in several technology startups in the row. 
+Your career goals will dictate what opportunities to take and which to give a pass.
 
 ##### Trying, failing and Pivoting
 
