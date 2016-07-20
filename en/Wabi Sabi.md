@@ -99,13 +99,13 @@ I would recommend  "Microbe Hunters" book to every young person, stories of peop
 
 ##### Choosing the direction
 
-At beginning you may have no idea what to do in life, but you should strive to make best career choices you can based on the following criteria: 
+At the beginning you may have no idea what to do in life, however you should strive to make best choices you can based on the following criteria: 
 
-- people will recognize you and pay for what you do if you apply yourself
-- the career you are choosing is aligning with your core values
-- people you will work with are nice
+- people will find value in what you are doing
+- the career you are choosing is aligned with your core values
+- people you will associate yourself with align with your core values
 
-These three points are important, if people are not willing to pay for what you do (e.g. hiking, traveling, writing) than it is a hobby and should be treated as one. People should have hobbies and they are very important. 
+These three points are important, if people are not willing to pay for what you do (e.g. hiking, traveling, writing) than it is a hobby and should be treated as one. People should have hobbies, but these are not jobs and should not be confused. 
 
 On the flip side, you can make a lot of money as lawyer, or a banker, but it might not be aligned with your value system as most money is made in defending interests of worse cases. 
 
