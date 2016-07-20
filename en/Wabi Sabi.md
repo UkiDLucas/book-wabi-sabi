@@ -40,13 +40,13 @@ I like to surround myself by nature, old useful things and antique furniture, no
 
 #### Imperfection in Wabi Sabi
 
-The concept of imperfection is at the core of meaning of Wabi Sabi. Japanese, over many centuries learned to appreciate ideals of natural simplicity, especially valuable are objects that has provided a useful value over a very long time.
+The concept of imperfection is at the core of meaning of Wabi Sabi. Japanese, over many centuries learned to appreciate ideals of natural simplicity, where especially valuable are objects that have proved to be useful over a very long time.
 
-The closest examples in Western culture that I can think is a pocket knife, swing chair, or golden heirloom grandpa's watch that has been passed over the generations. 
+The closest examples in Western culture that I can think are a pocket knife, swing chair, or golden heirloom grandpa's watch that has been passed over the generations. 
 
 In Japan, the hand made tea bowl with an odd shape, or an intentional imperfections could provide infinitely more value to the connoisseur than a perfect factory specimen. I think, that intuitively we all can understand and appreciate handiwork that is imperfect, yet better than perfect.
 
-Today, we are living in the modern culture were perfection is a norm and requirement. Perfect grades, perfect body, perfect and newest versions to things we posses. So many of us do not attempt great things because we know we have no shot at perfect execution. 
+Today, we are living in the culture were perfection is a norm and requirement. Perfect grades, plastic perfect body, perfect and newest versions to things we posses. So many of us do not attempt great things because we know we have no shot at perfect execution. 
 
 In fact the saying "Do not let perfect stand in the way of good" is one of the most important things a person should learn. Some of the modern examples of imperfect things that are simply amazing are: 
 
@@ -85,9 +85,11 @@ You should use the idea of keeping track of your tasks in personal life as well.
 
 ### Steps to success
 
-In this section I will describe stages a person should go in order to achieve success. This model has been used for centuries by Japanese craftsmen, but it applies superbly to modern academic, startup and corporate world. 
+There are few shortcuts on the way to sucess, for example winning a lottery, having an influential family and friends, attending best schools, or creating a good product early on, will definitely help, but in the long way we have to earn our place in life the hard way, by providing value. 
 
-Many people try to skip some of these important developmental milestones and subsequently fail, get discouraged, or worse. There are many different ways to success and some shortcuts, i.e. winning lottery, starting early in the childhood, having an influential family and friends, attending best schools, or creating good product early on, but most of us have to earn their place in life the hard way. 
+Having a shortcut may help, but trying to skip some of the important developmental milestones increases your chance to fail, getting discouraged, or worse.
+
+The model provided here has been used for centuries by Japanese craftsmen mastering their art, but it applies superbly to modern academic, startup and corporate world. 
 
 #### Starting from zero
 
