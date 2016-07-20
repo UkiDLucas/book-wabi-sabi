@@ -1,4 +1,4 @@
-# Wabi Sabi: a manifesto
+# Wabi Sabi: the art and quality of life
 
 ## Introduction
 
