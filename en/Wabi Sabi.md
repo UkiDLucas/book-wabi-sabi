@@ -20,7 +20,7 @@ Today, when you study Japanese culture and research Wabi Sabi you find reference
 
 The original Japanese appreciation of transient nature of things extended far beyond the sense of art and the garden design. This world view, when truly understood, extends to everything we do in our lives. It leads to healthy internal balance, unity with nature, empathy, mastery of our actions, thoughtfulness and shelters us from toxic and destructive perfection.
 
-When translated, the imperfect meaning of the "Wabi" is the elation one has when experiencing the essence of nature. The word "Sabi" symbolizes the joy of time-proven minimalism and simplicity of things. Together they could be interpreted as "natural simplicity", but I prefer to leave the words untranslated and understand them in the form of images.
+When translated, the imperfect meaning of the "Wabi" is the elation one has when experiencing the essence of nature. The word "Sabi" symbolizes the joy of time-proven minimalism and simplicity of things. Together, they could be interpreted as "natural simplicity", but I prefer to leave the words untranslated and understand them in the form of images.
 
 This book will be about application of this beautiful, yet powerful world view to every day life, hopefully it will help us to improve our lives and maybe even save the planet.
 
@@ -32,7 +32,7 @@ I rather think about Wabi Sabi by imagining a full of life flower, perfect as it
 
 ### Wabi Sabi of Japanese woodworking
 
-The other way I like to think about Wabi Sabi is by visualizing Japanese wood-working. 
+One way I like to explain Wabi Sabi is by visualizing Japanese wood-working. 
 
 Japanese master builders are able to make superbly finesse furniture and mega temples without use of nails or glue. These things, after 1000 years, can still be reassembled and put back together for renovation like a puzzle pieces.
 
@@ -40,13 +40,17 @@ To accomplish such feats, Japanese have fondness for some marvelous, sharper as 
 
 I like to surround myself by nature, old useful things and antique furniture, not because they are fancy, but because they are simple and have quality lacking in modern plastic disposables.
 
+This is probably the first lesson we can learn here: your possessions should be well selected, serve purpose, have timeless appeal.
+
 #### Imperfection in Wabi Sabi
 
-The concept of imperfection is at the core of meaning of Wabi Sabi. Japanese, over many centuries learned to appreciate ideals of natural simplicity, where especially valuable are objects that have proved to be useful over a very long time.
+Japanese, over many centuries learned to appreciate ideals of natural simplicity. The most treasured objects have proved to be useful over a very long time. Many such objects are far from perfect, they may carry patina of years past, chips and dings, they may be slightly faded. The concept of imperfection is at the core of meaning of Wabi Sabi. 
 
 The closest examples in Western culture that I can think are a pocket knife, swing chair, or golden heirloom grandpa's watch that has been passed over the generations. 
 
-In Japan, the hand made tea bowl with an odd shape, or an intentional imperfections could provide infinitely more value to the connoisseur than a perfect factory specimen. I think, that intuitively we all can understand and appreciate handiwork that is imperfect, yet better than perfect.
+In Japan, the hand made tea bowl with an odd shape, sometimes an intentional imperfection, could provide infinitely more value to the connoisseur than a perfect factory specimen. 
+
+I think, we can intuitively understand and appreciate the masterful handiwork that is imperfect, as better than perfect factory replica. This concept has always been at the core or art value.
 
 Today, we are living in the culture were perfection is a norm and requirement. Perfect grades, plastic perfect body, perfect and newest versions to things we posses. So many of us do not attempt great things because we know we have no shot at perfect execution. 
 
