@@ -12,13 +12,15 @@ I have decided to write down a set of life lessons I have learned. I am drawing 
 
 ## Wabi Sabi
 
-Japanese of yester-year had a beautiful world view that touches the very fabric of one's soul, few people can name it, but everyone can easily understand it when you look at old and weathered, but well-built cabin in the mountains on the flowery spring morning, colorful autumn, or a quiet, snowed-in, winter day. The scenery you see are all both transient, never to be seen the same way again and comforting at the same time in the feel of permanence. The cabin, build years ago, is far from plastic factory perfect, yet it fits in and it is inviting.
+Japanese of yester-year had a beautiful world view that touches the very fabric of one's soul, few people can name it, but everyone can easily understand it when you look at traditional, nicely-built cabin in the mountains on the flowery spring morning, colorful autumn, or a quiet, snowed-in, winter day. 
+
+The scenery you see is both transient, never to be seen the same way again and comforting at the same time in the feel of permanence. The cabin, build years ago, is far from plastic-factory-perfect, yet it fits in perfectly, it is warm and inviting.
 
 Today, when you study Japanese culture and research Wabi Sabi you find references to Zen gardens, atchitecture, tea bowls and ikebana flower arrangements. 
 
 The original Japanese appreciation of transient nature of things extended far beyond the sense of art and the garden design. This world view, when truly understood, extends to everything we do in our lives. It leads to healthy internal balance, unity with nature, empathy, mastery of our actions, thoughtfulness and shelters us from toxic and destructive perfection.
 
-When translated, the imperfect meaning of the Wabi is the elation one has when experiencing the essence of nature. Word Sabi it the joy of proven minimalism and simplicity of things. Together they could be interpreted as "natural simplicity", but I prefer to leave the words untranslated and understand them in the form of images.
+When translated, the imperfect meaning of the "Wabi" is the elation one has when experiencing the essence of nature. The word "Sabi" symbolizes the joy of time-proven minimalism and simplicity of things. Together they could be interpreted as "natural simplicity", but I prefer to leave the words untranslated and understand them in the form of images.
 
 This book will be about application of this beautiful, yet powerful world view to every day life, hopefully it will help us to improve our lives and maybe even save the planet.
 
