@@ -1,14 +1,14 @@
-# Wabi Sabi: the art and quality of life
+# Wabi Sabi: the art of living beautifully
 
 ## Introduction
 
 There are as many ways to convey a message as they are individuals willing to communicate. Everyone draws on their own experiences. Some people prefer raw statistical facts, others follow religions, some other hop on the latest (Paleo, Gluten Free, No Sugar) trend. 
 
-I chose to wrap my message in the thousand year old culture of art, refinement and common sense, a paradigm called "Wabi Sabi" in Japanese culture. As you read this book, hopefully, you will experience a paradigm shift and notice that our society, including that of modern Japan, lost ourselves in recent times. Do not worry, there is an easy way back. 
+I chose to wrap my message in the thousand-year-old culture of art, refinement and common sense, a paradigm called "Wabi Sabi" in Japanese. As you read this book, you will experience, hopefully, a paradigm shift and notice that our society, including that of modern Japan, lost something important in recent times. 
 
-Why do we need a pattern to follow? Our brains work well because they are finding simplified patterns in otherwise too complex to comprehend world. I could write down a list of thousand "dos and do nots", but the list would be hard to remember. There are other simple to remember one-liners that people follow like "Do not do to others what you would no like them to do to you.", but unfortunately that applies to people and does not help us interact with the material world around us. 
+Do we really need yet another trend to follow? Yes, if it makes life better and more beautiful. Our brains work well  at finding patterns in otherwise too complex to comprehend world. I could write down a list of thousand "dos and do nots", but the list would be hard to remember. There are other simple to remember one-liners that people follow like "Do not do to others what you would no like them to do to you.", that is great, but it applies to people and does not help us interact with the material world around us. 
 
-I have decided to write down a set of life lessons I have learned by drawing on my experience of living for three years in Japan, studying anthropology of East Asia, creating software products, experience of managing lots people for couple of decades, pitfalls of being broke and making good money at the same time. Madness of running on the corporate treadmill and trying to make sense of it.
+I have decided to write down a set of life lessons I have learned. I am drawing on my experience of living for three years in Japan, studying anthropology of East Asia, creating software products, experience of managing lots people for couple of decades, pitfalls of being broke and making good money at the same time. Madness of running on the corporate treadmill and trying to make sense of it all.
 
 ## Wabi Sabi
 
